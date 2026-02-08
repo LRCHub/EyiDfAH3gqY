@@ -1,4 +1,4 @@
-# Radwimps – DADA (BACK TO THE LIVE HOUSE TOUR 2023 Live at Zepp Haneda(TOKYO) [2023/7/5])
+# RADWIMPS – DADA (BACK TO THE LIVE HOUSE TOUR 2023 Live at Zepp Haneda(TOKYO) [2023/7/5])
 
 > **歌詞登録ステータス：プレーン歌詞のみ**
 
